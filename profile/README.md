@@ -1,6 +1,6 @@
 # Next Generation Trading Club
 
-Contact: ngtcunimelb@gmail.com
+[Join Us](https://umsu.unimelb.edu.au/buddy-up/clubs/clubs-listing/join/9052/)
 
 🚀 Welcome to the Next Generation Trading Club at the University of Melbourne! We are a pioneering club that merges the realms of AI and Trading to equip students with valuable skills and insights into the evolving landscape of financial markets.
 
